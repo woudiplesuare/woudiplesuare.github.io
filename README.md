@@ -1,2 +1,0 @@
-# woudiplesuare.github.io
- portfolio
